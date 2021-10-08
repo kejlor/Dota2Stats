@@ -1,0 +1,1 @@
+Dota 2 is a registered trademark of Valve Corporation.
